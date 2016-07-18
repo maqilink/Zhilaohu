@@ -19,7 +19,7 @@
 > 收集了学员发布在QQ群的活动回顾、笔记、感受等
 
 
-![打倒纸老虎](http://7xom60.com1.z0.glb.clouddn.com/%E6%89%93%E5%80%92%E7%BA%B8%E8%80%81%E8%99%8EV2.01.jpg)
+![打倒纸老虎](http://7xom60.com1.z0.glb.clouddn.com/zlh_cover_V3.jpg)
 
 
 
